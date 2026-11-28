@@ -1,2 +1,0 @@
-# chucmungsinhnhatvinh
-sinh nhat
